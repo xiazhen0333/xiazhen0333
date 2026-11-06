@@ -4,6 +4,6 @@ Arch / KDE user tinkering with Linux desktops, AI tools, and subtitle workflows.
 
 📧 huangzhen023023@outlook.com
 
-𝕏 https://x.com/xiazhenmeo
+𝕏 https://x.com/xiazhenmeow
 
 Discord https://discord.gg/7PmnGQ4z
